@@ -12,6 +12,7 @@
 
 **魔镜街拍资源站（免费下载）**  
 👉 [https://mojing2.pages.dev](https://mojing2.pages.dev)
+<img width="1222" height="730" alt="截屏2026-09-20 上午6 11 18" src="https://github.com/user-attachments/assets/4d2e3b34-0332-488a-803f-33ffd05ae5b3" />
 
 ---
 
